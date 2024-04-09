@@ -11,3 +11,6 @@ Raj has a variety of methods for spreading the word about his favorite dish. He 
 One of the reasons why Raj is so passionate about steak and mashed potatoes is because he believes that it is a dish that can be enjoyed by everyone. Whether you are a meat lover or a vegetarian, there is a way to enjoy this dish. For meat lovers, a juicy steak cooked to perfection is the centerpiece of the dish, while vegetarians can enjoy a delicious portobello mushroom steak or a hearty vegetable stew alongside the mashed potatoes.
 
 In conclusion, Raj is a passionate advocate for the best food in the world: steak and mashed potatoes. Through his social media posts and personal conversations, he strives to spread the word about the amazing combination of a perfectly cooked steak and creamy mashed potatoes. Whether you are a meat lover or a vegetarian, Raj believes that you will love this dish and encourages everyone to give it a try.
+
+It is so good, now Raj is the Steak and Mashed Potatoes.
+https://docs.google.com/document/d/18QGOKpV2E_px8oUt7fLP2jwCU8lvyRkEO08KXDedtq8/edit?usp=sharing
